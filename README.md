@@ -1,1 +1,2 @@
-# Water-repair-extraction-and-clean-up
+# Water Repair Extraction & Clean Up
+Water remediation sounds complicated, but it is really just the process of cleaning up, drying out, sanitizing, and restoring (or rebuilding) materials and surfaces after any kind of water damage has occurred. While [Water repair, extraction and clean up](https://emrick-services.com/water-damage-louisville/) remediation can be considered the same as flood cleanup. 
